@@ -1,0 +1,1 @@
+# GITHUB-Curriculum---sample
